@@ -1,0 +1,2 @@
+# Praktikum-PBO-Tugas-2
+NAMA : RIZKA WAHYUNI        NIM:2007110649
